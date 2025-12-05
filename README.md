@@ -1,0 +1,74 @@
+# Empty old City – Inside Story
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Blue eyes on you are stimulating
+my pupils and
+Turning the light between us in
+the darkness
+It'll maybe disappear before
+You'll maybe disappear before I
+can blink
+This is the last conversation
+with warmth
+As I sink into the night,
+wanna be against destiny
+Now don't need words anymore
+So now I will just burn it into
+my memory
+Never see your face
+At this secret place
+徒に重なる両手を
+Like a tale of pain
+In the name of love
+握りしめた
+ねえどうして
+交わらないと知って
+相も変わらず
+夢見た幻想
+華やいだ後の姿を愛そうと
+抱きしめた腕の中には
+入らないでしょう
+私は知ってる
+あなたは知ってる
+桜が散るのは
+華麗なる終わりのため
+Never see your face
+At this secret place
+今宵は二人の祝祭を
+Like a tale of pain
+In the name of love
+甘い蜜で
+ねえどうして
+報われないと知って
+優しくなるの
+どれだけ惨めな悪魔を演じようと
+溺れることすら正しいと
+微笑うのでしょう
+私は知ってる
+あなたは知ってる
+月が欠けるのは
+二人が溶け合うため
+華やいだ後の姿を愛そうと
+抱きしめた腕の中には
+入らないでしょう
+私は知ってる
+あなたは知ってる
+桜が散るのは
+華麗なる者の定め
+あまねく季節が景色を変えようと
+名前も知らないあなたを
+想うでしょう
+あなたが残した
+時間を抱えて
+誰もまだ知らない
+秘密の場所に立ってる
+This is an inside story
+We will stand on the fire ground
+But we are lying under the white
+moonlight
+Unknown inside story
+In the name of love
+A certain general lied, lied
+```
